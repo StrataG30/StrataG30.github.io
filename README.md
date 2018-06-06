@@ -1,0 +1,1 @@
+# StrataG30.github.io
